@@ -1,1 +1,6 @@
-Thanks for being the mirror to my soul...thanks for listening to all my problems patiently nd being there for me at my best and worst and I promise no matter how the tough life gets I will be always there no mater what comes to your life, I'll be right beside you .🥰🤍 May you achieve all the things in your life . Once agian HAPPIEST BIRTHDAY THEODRE 🥳✨️
+Happiest Birthday, Sara! 🎉💖
+Thank you for always listening to my side and never judging me. That truly means so much to me.
+You match my humor, you match my vibe, and talking to you feels so natural and comfortable… sometimes too comfortable — it even makes me uncomfortable ☠️☠️😂
+But be the crazy you are, because that’s what makes you so special and so fun to be around 😜✨ Never change that beautiful, chaotic energy.
+I hope this year brings you endless happiness and everything you truly deserve.
+Once again, happiest birthday, Sara! 🎂💫
